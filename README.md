@@ -1,5 +1,5 @@
 Hi there, I'm Dilshodbek Ikromov 👋
-- About Me
+About Me
 I'm currently the Head of Marketing at Oson Apteka, based in Tashkent. With over two years of experience in marketing, I am passionate about leveraging data and technology to drive impactful strategies and decisions.
 
 Learning Journey
